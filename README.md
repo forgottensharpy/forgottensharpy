@@ -37,3 +37,6 @@ I usally talk on Unitas, if you would like to check it out, make sure to click t
     <a href="#"><img alt="Figma" src="https://img.shields.io/badge/figma-%23F24E1E.svg?style=for-the-badge&logo=figma&logoColor=white"></a>
     <a href="#"><img alt="Wikipedia" src="https://img.shields.io/badge/Wikipedia-%23000000.svg?style=for-the-badge&logo=wikipedia&logoColor=white"></a>
 </p>
+
+
+### SITE IN PROGRESS!!
