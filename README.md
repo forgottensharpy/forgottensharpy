@@ -2,7 +2,7 @@
 
 
 ## Glad to see you here!
-Hey there, I'm a young designer, I have knowledge in things such as Roblox Developing, and I'm still learning how to code.
+Hey there, I'm a young designer, I have knowledge in things such as designing, and I'm still learning how to code.
 I usally talk on Unitas, if you would like to check it out, make sure to click the Discord icon above.
 
 <img align="right" alt="GIF" src="https://media.giphy.com/media/IThjAlJnD9WNO/giphy.gif" width="408" height="318" />
