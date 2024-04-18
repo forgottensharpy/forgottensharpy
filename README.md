@@ -20,11 +20,4 @@ I usally talk on Unitas, if you would like to check it out, make sure to click t
 - 📬 How to reach me: wantedsharps on Discord
 
 ---
-### Special poeple in My Life 
-- Em
-- Lore
-- JuJu
-- Lora
-
----
 ### SITE IN PROGRESS!!
