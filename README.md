@@ -1,4 +1,4 @@
-# Welcome to [$HΛR₽Y's](https://github.com/typicalsharps) profile! <a href="#"><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"></a>
+# Welcome to [$HΛR₽Y's](https://github.com/forgottensharpy) profile! <a href="#"><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"></a>
 
 > **Note**: In school until 20th June 2025 - **won't be much available until then.**
 
