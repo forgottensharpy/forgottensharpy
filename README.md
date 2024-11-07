@@ -16,7 +16,6 @@ Hey there, I'm a young designer, I have knowledge in things such as designing, a
 - I'm currently advancing my skills:
   - Coding
   - Designing
-- Join [Geometrical Designs' Discord server](https://discord.gg/E4MzxSZZGn)
 - How to reach me: forgotten.sharpy on Discord
 
 ---
